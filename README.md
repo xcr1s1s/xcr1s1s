@@ -5,5 +5,5 @@
 - usually have public chat off unless w/ friends so w2int
 - either offtab or gaming when online alone
 - check straw for interests & stuff
-- [4GGRAVATE-WEB](https://github.com/4GGRAVATE-WEB) the 4ggravate boys account
-- [raine](https://github.com/calicozzy) [bren](https://github.com/HackettsQuarry) hi tres leches
+- [@4GGRAVATE-WEB](https://github.com/4GGRAVATE-WEB) the 4ggravate boys account
+- [@raine](https://github.com/calicozzy) [@bren](https://github.com/HackettsQuarry) hi tres leches

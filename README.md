@@ -5,4 +5,5 @@
 - usually have public chat off unless w/ friends so w2int
 - either offtab or gaming when online alone
 - check straw for interests & stuff
-[carrd](https://xcrisis.carrd.co/) for extra things
+- [carrd](https://xcrisis.carrd.co/) for extra things
+- [4GGRAVATE-WEB](https://github.com/4GGRAVATE-WEB) the 4ggravate boys account

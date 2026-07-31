@@ -1,6 +1,8 @@
-<img width="200" height="250" alt="4GGRAVATE MEME!!!" src="https://github.com/user-attachments/assets/9cb5de4f-bb6f-4883-a32d-c708455d406d" />
+<img width="200" height="200" alt="4GGRAVATE MEME!!!" src="https://github.com/user-attachments/assets/9cb5de4f-bb6f-4883-a32d-c708455d406d" />
 
 ![books reorganised](https://komarev.com/ghpvc/?username=xcr1s1s)
 
 - usually have public chat off unless w/ friends so w2int
 - either offtab or gaming when online alone
+- check straw for interests & stuff
+[carrd](https://xcrisis.carrd.co/) for extra things

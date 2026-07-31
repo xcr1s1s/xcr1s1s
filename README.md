@@ -7,3 +7,4 @@
 - check straw for interests & stuff
 - [carrd](https://xcrisis.carrd.co/) for extra things
 - [4GGRAVATE-WEB](https://github.com/4GGRAVATE-WEB) the 4ggravate boys account
+- [raine](https://github.com/calicozzy) [bren](https://github.com/HackettsQuarry) hi tres leches

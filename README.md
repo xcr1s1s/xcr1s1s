@@ -1,7 +1,7 @@
 <p align=“center”>
   <img width="200" height="200" alt="4GGRAVATE MEME!!!" src="https://github.com/user-attachments/assets/9cb5de4f-bb6f-4883-a32d-c708455d406d" />
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=xcr1s1&color=turquoise&label=books_reorganised"/>
+  <img src="https://komarev.com/ghpvc/?username=xcr1s1&color=gold&label=books_reorganised"/>
 
 - usually have public chat off unless w/ friends so w2int
 - either offtab or gaming when online alone

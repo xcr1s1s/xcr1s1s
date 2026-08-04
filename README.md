@@ -1,5 +1,8 @@
 <p align="center">
-  <img width="200" height="200" alt="4GGRAVATE MEME!!!" src="https://github.com/user-attachments/assets/9cb5de4f-bb6f-4883-a32d-c708455d406d" />
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oxbcwo3zvnaryjlq6e3vuvus54&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31oxbcwo3zvnaryjlq6e3vuvus54&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=00b5a6">
+  </a>
+</p>
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=xcr1s1&color=0c4832&label=chisel_mirrors"/>
 
@@ -9,11 +12,6 @@
 - [@4GGRAVATE-WEB](https://github.com/4GGRAVATE-WEB) the 4ggravate boys account
 - [@calicozzy](https://github.com/calicozzy) [@HackettsQuarry](https://github.com/HackettsQuarry) hi tres leches
 - [@domedcourt](https://github.com/domedcourt) my dear kaveh <3
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oxbcwo3zvnaryjlq6e3vuvus54&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31oxbcwo3zvnaryjlq6e3vuvus54&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=00b5a6">
-  </a>
-</p>
 
 <p align=center>
 still a wip

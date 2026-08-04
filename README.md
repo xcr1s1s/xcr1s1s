@@ -8,4 +8,4 @@
   <img src="https://komarev.com/ghpvc/?username=xcr1s1&color=0c4832&label=chisel_mirrors"/>
 
 <p align=“center”>
-  <img src=“https://i.postimg.cc/Pf0LTB3b/Untitled221-20260804211920.png”>
+  <img width="1280" height="720" alt="header" src=[![Untitled221-20260804211920.png](https://i.postimg.cc/Pf0LTB3b/Untitled221-20260804211920.png)](https://postimg.cc/s19fJ0R1)>]

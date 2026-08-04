@@ -8,3 +8,8 @@
 - check straw for interests & stuff
 - [@4GGRAVATE-WEB](https://github.com/4GGRAVATE-WEB) the 4ggravate boys account
 - [@raine](https://github.com/calicozzy) [@bren](https://github.com/HackettsQuarry) hi tres leches
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oxbcwo3zvnaryjlq6e3vuvus54&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31oxbcwo3zvnaryjlq6e3vuvus54&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=00b5a6">
+  </a>
+</p>

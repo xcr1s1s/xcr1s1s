@@ -7,5 +7,4 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=xcr1s1&color=0c4832&label=chisel_mirrors"/>
 
-<p align=“center”>
   <img width="1280" height="560" alt="header" src=“https://i.postimg.cc/Pf0LTB3b/Untitled221-20260804211920.png”>

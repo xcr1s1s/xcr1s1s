@@ -8,6 +8,7 @@
   <img src="https://komarev.com/ghpvc/?username=xcr1s1&color=0c4832&label=chisel_mirrors"/>
 
   
-<p align=“center”>
-  “𝘈𝘯𝘥 𝘪𝘵’𝘴 𝘯𝘰𝘵 𝘭𝘪𝘬𝘦 𝘮𝘺 𝘋𝘢𝘳𝘴𝘩𝘢𝘯 𝘸𝘢𝘴 𝘵𝘳𝘺𝘪𝘯𝘨 𝘵𝘰 𝘢𝘱𝘱𝘭𝘺 𝘧𝘰𝘳 𝘧𝘶𝘯𝘥𝘪𝘯𝘨 𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘨𝘳𝘢𝘯𝘥 𝘴𝘢𝘨𝘦.”
+<p align=“center” txt=“𝘈𝘯𝘥 𝘪𝘵’𝘴 𝘯𝘰𝘵 𝘭𝘪𝘬𝘦 𝘮𝘺 𝘋𝘢𝘳𝘴𝘩𝘢𝘯 𝘸𝘢𝘴 𝘵𝘳𝘺𝘪𝘯𝘨 𝘵𝘰 𝘢𝘱𝘱𝘭𝘺 𝘧𝘰𝘳 𝘧𝘶𝘯𝘥𝘪𝘯𝘨 𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘨𝘳𝘢𝘯𝘥 𝘴𝘢𝘨𝘦.”>
+
+<p align=center”>
   <img width=“1280” height=“720” alt=header src=https://i.postimg.cc/TYwpjTKB/header.png>

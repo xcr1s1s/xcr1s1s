@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=xcr1s1s&color=0c4832&label=chisel_mirrors"/>
+  <img src="https://komarev.com/ghpvc/?username=xcr1s1&color=0c4832&label=chisel_mirrors"/>
 
 <p align=center”>
   <img width=“1280” height=“720” alt=header src=https://i.postimg.cc/TYwpjTKB/header.png>

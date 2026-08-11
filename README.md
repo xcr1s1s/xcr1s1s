@@ -1,5 +1,5 @@
 <p align=center”>
-  <img width=“1280” height=“720” alt=alhaitham src=https://i.postimg.cc/FRhGNyD1/haithamheader.png>
+  <img src=https://i.postimg.cc/FRhGNyD1/haithamheader.png>
   
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oxbcwo3zvnaryjlq6e3vuvus54&redirect=true">

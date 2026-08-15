@@ -1,3 +1,4 @@
+moving all my and my friends’ links here at some point
 <p align=center”>
   <img src=https://i.postimg.cc/3N2Km0sY/Untitled232.png>
   

@@ -18,4 +18,4 @@ moving all my and my friends’ links here at some point
 <p align=center> 
   friends (sign THEIR atas not mine)
 
-[<img src=https://i.postimg.cc/kgZmqBDK/latest.png>](https://github.com/HackettsQuarry) [img src=
+[<img src=https://i.postimg.cc/kgZmqBDK/latest.png>](https://github.com/HackettsQuarry) [<img src=https://i.postimg.cc/6QNMrXmj/latest-2.png>](https://github.com/eternaliity) [<img src=https://i.postimg.cc/1t70jhJk/latest-3.png>](https://github.com/calicozzy) [<img src=https://i.postimg.cc/GhyPqfYx/Untitled1039-20260812210951.png>](https://github.com/domedcourt)

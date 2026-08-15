@@ -13,3 +13,9 @@ moving all my and my friends’ links here at some point
   
 <p align=center>
   𝘐𝘵’𝘴 𝘯𝘰𝘵 𝘭𝘪𝘬𝘦 𝘮𝘺 𝘋𝘢𝘳𝘴𝘩𝘢𝘯 𝘸𝘢𝘴 𝘵𝘳𝘺𝘪𝘯𝘨 𝘵𝘰 𝘢𝘱𝘱𝘭𝘺 𝘧𝘰𝘳 𝘧𝘶𝘯𝘥𝘪𝘯𝘨 𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘨𝘳𝘢𝘯𝘥 𝘴𝘢𝘨𝘦. 𝘏𝘮. 𝘠𝘰𝘶𝘳𝘴, 𝘵𝘩𝘰𝘶𝘨𝘩, 𝘰𝘯 𝘵𝘩𝘦 𝘰𝘵𝘩𝘦𝘳 𝘩𝘢𝘯𝘥…
+</p>
+
+<p align=center> 
+  friends (sign THEIR atas not mine)
+
+[<img src=https://i.postimg.cc/kgZmqBDK/latest.png>](https://github.com/HackettsQuarry) [img src=

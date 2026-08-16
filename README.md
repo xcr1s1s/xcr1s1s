@@ -1,6 +1,6 @@
-moving all my and my friends’ links here at some point
+changes frequently vv
 <p align=center”>
-  <img src=https://i.postimg.cc/3N2Km0sY/Untitled232.png>
+  <img src=https://i.postimg.cc/xqVSpWBw/ghfx.png>
   
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oxbcwo3zvnaryjlq6e3vuvus54&redirect=true">

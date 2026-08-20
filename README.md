@@ -1,6 +1,6 @@
 changes frequently vv
 <p align=center”>
-  <img src=https://i.postimg.cc/xqVSpWBw/ghfx.png>
+  <img src=https://i.postimg.cc/8zhVQCBZ/haithambanner.png>
   
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oxbcwo3zvnaryjlq6e3vuvus54&redirect=true">

@@ -1,4 +1,3 @@
-i try doing things
 <p align=center”>
   <img src=https://i.postimg.cc/8zhVQCBZ/haithambanner.png>
   

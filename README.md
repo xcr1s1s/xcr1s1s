@@ -1,4 +1,4 @@
-changes frequently vv
+i try doing things
 <p align=center”>
   <img src=https://i.postimg.cc/8zhVQCBZ/haithambanner.png>
   
@@ -19,6 +19,6 @@ changes frequently vv
   <img src=https://i.postimg.cc/HsSNxJYY/hkvh.png>
 
 <p align=center> 
-  friends (free clout, wishing i got paid)
-
+  friends
+  
   [<img src=https://i.postimg.cc/kgZmqBDK/latest.png>](https://github.com/HackettsQuarry) [<img src=https://i.postimg.cc/6QNMrXmj/latest-2.png>](https://github.com/eternaliity) [<img src=https://i.postimg.cc/1t70jhJk/latest-3.png>](https://github.com/calicozzy) [<img src=https://i.postimg.cc/GhyPqfYx/Untitled1039-20260812210951.png>](https://github.com/domedcourt)

@@ -1,5 +1,5 @@
 <p align=center”>
-  <img src=https://i.postimg.cc/8zhVQCBZ/haithambanner.png>
+  <img src=https://i.postimg.cc/wj2qzctF/gh-banner-yay.png>
   
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oxbcwo3zvnaryjlq6e3vuvus54&redirect=true">

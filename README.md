@@ -12,8 +12,13 @@
   </a>
 </p>
 
+<p align="center">
+  <a href="https://scholarsintuition.atabook.org"><img src="https://i.postimg.cc/VNC0krt1/Untitled264-20260916202615.png" alt="atabook">
+  <a href="https://xcrisis.straw.page"><img src="https://i.postimg.cc/m2pP3N3p/Untitled264-20260916202922.png" alt="strawpage">
+  <a href="https://xcrisis.carrd.co"><img src="https://i.postimg.cc/JnQnsb49/carrdlink.png" alt="carrd">
+  <a href="https://pronouns.cc/@xcr1s1s"><img src="https://i.postimg.cc/gjQPjJ8b/Untitled264-20260916203053.png" alt="pronouns.cc">
+</a>
 
-  [atabook](https://scholarsintuition.atabook.org) • [strawpage](https://xcrisis.straw.page) • [pronouns.cc](https://pronouns.cc/@xcr1s1s) • [carrd](https://xcrisis.carrd.co)
 <p align=center>
   𝘐𝘵’𝘴 𝘯𝘰𝘵 𝘭𝘪𝘬𝘦 𝘮𝘺 𝘋𝘢𝘳𝘴𝘩𝘢𝘯 𝘸𝘢𝘴 𝘵𝘳𝘺𝘪𝘯𝘨 𝘵𝘰 𝘢𝘱𝘱𝘭𝘺 𝘧𝘰𝘳 𝘧𝘶𝘯𝘥𝘪𝘯𝘨 𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘨𝘳𝘢𝘯𝘥 𝘴𝘢𝘨𝘦. 𝘏𝘮. 𝘠𝘰𝘶𝘳𝘴, 𝘵𝘩𝘰𝘶𝘨𝘩, 𝘰𝘯 𝘵𝘩𝘦 𝘰𝘵𝘩𝘦𝘳 𝘩𝘢𝘯𝘥…
 </p>

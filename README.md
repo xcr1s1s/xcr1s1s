@@ -2,6 +2,8 @@
   <img src=https://i.postimg.cc/wj2qzctF/gh-banner-yay.png>
 </p>
 
+[stop using rentry](https://docs.google.com/document/d/1InDzZ2O6vtPMBTVtjYPdspKpVmBMW24MocKIP2rm1iQ/edit?usp=drivesdk) • [pt skin copier aka tiffany](https://tiffanywhenicatchu.straw.page)
+
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=xcr1s1&color=0c4832&label=chisel_mirrors"/>
 </p>
@@ -12,13 +14,13 @@
   </a>
 </p>
 
+<p align=center>
+  𝘐𝘵’𝘴 𝘯𝘰𝘵 𝘭𝘪𝘬𝘦 𝘮𝘺 𝘋𝘢𝘳𝘴𝘩𝘢𝘯 𝘸𝘢𝘴 𝘵𝘳𝘺𝘪𝘯𝘨 𝘵𝘰 𝘢𝘱𝘱𝘭𝘺 𝘧𝘰𝘳 𝘧𝘶𝘯𝘥𝘪𝘯𝘨 𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘨𝘳𝘢𝘯𝘥 𝘴𝘢𝘨𝘦. 𝘏𝘮. 𝘠𝘰𝘶𝘳𝘴, 𝘵𝘩𝘰𝘶𝘨𝘩, 𝘰𝘯 𝘵𝘩𝘦 𝘰𝘵𝘩𝘦𝘳 𝘩𝘢𝘯𝘥…
+</p>
+
 <p align="center">
   <a href="https://scholarsintuition.atabook.org"><img src="https://i.postimg.cc/VNC0krt1/Untitled264-20260916202615.png" alt="atabook"></a>&nbsp;&nbsp;&nbsp;&nbsp;
   <a href="https://xcrisis.straw.page"><img src="https://i.postimg.cc/m2pP3N3p/Untitled264-20260916202922.png" alt="strawpage"></a>&nbsp;&nbsp;&nbsp;&nbsp;
   <a href="https://xcrisis.carrd.co"><img src="https://i.postimg.cc/JnQnsb49/carrdlink.png" alt="carrd"></a>&nbsp;&nbsp;&nbsp;&nbsp;
   <a href="https://pronouns.cc/@xcr1s1s"><img src="https://i.postimg.cc/gjQPjJ8b/Untitled264-20260916203053.png" alt="pronouns.cc"></a>&nbsp;&nbsp;&nbsp;&nbsp;
 </a>
-
-<p align=center>
-  𝘐𝘵’𝘴 𝘯𝘰𝘵 𝘭𝘪𝘬𝘦 𝘮𝘺 𝘋𝘢𝘳𝘴𝘩𝘢𝘯 𝘸𝘢𝘴 𝘵𝘳𝘺𝘪𝘯𝘨 𝘵𝘰 𝘢𝘱𝘱𝘭𝘺 𝘧𝘰𝘳 𝘧𝘶𝘯𝘥𝘪𝘯𝘨 𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘨𝘳𝘢𝘯𝘥 𝘴𝘢𝘨𝘦. 𝘏𝘮. 𝘠𝘰𝘶𝘳𝘴, 𝘵𝘩𝘰𝘶𝘨𝘩, 𝘰𝘯 𝘵𝘩𝘦 𝘰𝘵𝘩𝘦𝘳 𝘩𝘢𝘯𝘥…
-</p>

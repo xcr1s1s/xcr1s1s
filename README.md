@@ -2,7 +2,7 @@
   <img src=https://i.postimg.cc/wj2qzctF/gh-banner-yay.png>
 </p>
 
-[rentry’s creators SUCK — here’s why](https://docs.google.com/document/d/1InDzZ2O6vtPMBTVtjYPdspKpVmBMW24MocKIP2rm1iQ/edit?usp=drivesdk) • [delusional pt skin copier named tiffany of all things](https://tiffanywhenicatchu.straw.page)
+[srop using rentry](https://docs.google.com/document/d/1InDzZ2O6vtPMBTVtjYPdspKpVmBMW24MocKIP2rm1iQ/edit?usp=drivesdk) • [pt skin copier](https://tiffanywhenicatchu.straw.page)
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=xcr1s1&color=0c4832&label=chisel_mirrors"/>

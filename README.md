@@ -2,7 +2,7 @@
   <img src=https://i.postimg.cc/wj2qzctF/gh-banner-yay.png>
 </p>
 
-[stop using rentry](https://docs.google.com/document/d/1InDzZ2O6vtPMBTVtjYPdspKpVmBMW24MocKIP2rm1iQ/edit?usp=drivesdk) • [pt skin copier](https://tiffanywhenicatchu.straw.page)
+[stop using rentry](https://docs.google.com/document/d/1InDzZ2O6vtPMBTVtjYPdspKpVmBMW24MocKIP2rm1iQ/edit?usp=drivesdk) • [pt skin copier](https://tiffanywhenicatchu.straw.page) • [click 2x](https://arab.org/click-to-help/palestine/)
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=xcr1s1&color=0c4832&label=chisel_mirrors"/>
